@@ -1,0 +1,1 @@
+# Faydal-Uygulama-Fonksiyonlar
